@@ -1,0 +1,1 @@
+to make the .mcpack please watch:https://youtu.be/DfdlyodHWKg?si=a67oRGtHbo_rLaAy 6:20 - 16:23
